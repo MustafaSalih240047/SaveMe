@@ -1,0 +1,1 @@
+"The colors, they won't stop.Bright, beautiful colorsFlashing, expanding, piercingRed, green, blueAn endlesscacophonyOf meaninglessnoiseThe noise, it won't stop.Violent, grating waveformsSqueaking, screeching, piercingSine, cosine, tangentLike playing a chalkboard on a turntableLike playing a vinyl on a pizza crustAn endlesspoemOf meaninglessLoad Me" 
